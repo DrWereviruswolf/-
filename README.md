@@ -1,4 +1,4 @@
-# -
+# 率土之滨/Immortal Conquest
 Immortal Conquest (looking  for coding teemates)
 
 Recruit teammates to crack this money-consuming game and create a free game that can be controlled by ourselves.
