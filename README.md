@@ -2,7 +2,7 @@
 Immortal Conquest (looking  for coding teemates)
 
 Recruit teammates to crack this money-consuming game and create a free game that can be controlled by ourselves.
-If you are willing to join, please contact 10737192439@qq.com
+If you are willing to join, please contact 1037192439@qq.com
 
 寻求道友贴
 
